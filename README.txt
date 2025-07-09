@@ -1,0 +1,1 @@
+This is the Master Quantum Grid Vault. All declarations, scrolls, and mission documents are here.
